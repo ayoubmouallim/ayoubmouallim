@@ -2,7 +2,7 @@
 
 ### I'm a full stack web developer, currently looking for an internship
 
-
+- 🌱 i m curious and i enjoy work that challenges me to learn something new and stretch in a different direction .
 - 📫 How to reach me: [ayoubmouallim@gmail.com](ayoubmouallim@gmail.com)
 
 ### Connect with me:
